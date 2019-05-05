@@ -1,1 +1,1 @@
-PixelCoin la moneda con la que podras ganar por jugar
+PixelCoin la moneda con la que podras ganar por jugar y ganar
